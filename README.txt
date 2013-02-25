@@ -1,0 +1,1 @@
+These sound bytes come from the games Star Control, Star Control 2 and Star Control 3. They were compiled together and obtained from http://www.sa-matra.net/sounds/starcontrol then converted into iPhone ringtones. Just download and drag into your iTunes Library, then to your iPhone to sync.
